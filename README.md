@@ -1,1 +1,1 @@
-yo that's cray bro
+yo that's crazy bro
